@@ -1,0 +1,1 @@
+this a new nice readme fil;e and im so sad that i couldnt make it up so far so i took help of shaik
